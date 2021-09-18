@@ -1,4 +1,5 @@
-## Welcome to vanlla.fun
+## Vanlla的有趣域名
+## 有趣( 雾水( )
 
 白嫖的新网域名
 
